@@ -1,1 +1,2 @@
-# SC
+# project
+lets gooo ......
